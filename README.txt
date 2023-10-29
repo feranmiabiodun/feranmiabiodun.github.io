@@ -1,0 +1,1 @@
+Hi, I am Abiodun Oluwaferanmi Adeagbo, a passionate and results-driven Data Scientist with a strong background in data analysis, machine learning, and data visualization. I have a deep curiosity for solving complex problems using data and a commitment to delivering valuable insights and solutions.
